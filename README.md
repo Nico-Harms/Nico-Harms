@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **nicolai.harms@gmail.com**
 
-- ⚡ Fun fact :- Quite the wine enjoyer.
+- ⚡ Fun fact :- Quite the wine 🍷 enjoyer.
 
 <br>
 
